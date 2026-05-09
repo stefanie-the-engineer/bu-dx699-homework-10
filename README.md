@@ -1,1 +1,1 @@
-# OMDS-ModB2-Week10-Kenyon-Stefanie
+# bu-dx699-homework-10-smkenyon
